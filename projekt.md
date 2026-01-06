@@ -1,1 +1,1 @@
-Strona restauracji Azjatyckiej
+Strona restauracji Azjatyckiej sprzedająca bowle
